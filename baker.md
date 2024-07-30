@@ -1,5 +1,4 @@
 # Ginger Baker
-============
 
 Baker's one of the few men who can live as recklessly as he wants and still come out smelling like roses. The logical place to start is "Beware of Mr. Baker", the documentary by Jay Bulger.
 
