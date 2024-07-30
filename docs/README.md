@@ -1,3 +1,5 @@
+# Encyclopedia Muneerica
+
 Want to see what I find humorous or interesting? Go to Stuff You Saw Because You Read This (SYSBYRT).
 
 Want to see topics I've researched and that I maintain a running knowledge base on? Check out Strange Researches.
